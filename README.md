@@ -1,6 +1,9 @@
-![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)
+![tgif test](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/eea8c95b-5233-4dd6-b52a-890448915796)![tgif test](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/eea8c95b-5233-4dd6-b52a-890448915796)![tgif test](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/eea8c95b-5233-4dd6-b52a-890448915796)
 
-⋆⋅⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆⋅⋆
+
+
+⋆⋅⋆⋅☆⋅⋆ ──
+──── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆⋅⋆
 
 *They say flowers fade And their beauty can't be weighed with flowers so fake*
 *It's all because the way things are made, live on lies that fabricate Antipathy world*
@@ -12,4 +15,5 @@
  i play hi3 and hsr alot!
 
  
-![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)
+![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)
+
