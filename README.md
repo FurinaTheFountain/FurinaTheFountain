@@ -6,6 +6,7 @@
 ──── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆⋅⋆
 
 *They say flowers fade And their beauty can't be weighed with flowers so fake*
+
 *It's all because the way things are made, live on lies that fabricate Antipathy world*
 
 <sub>fight for all that is beautiful in this world✩彡</sub>
