@@ -14,7 +14,13 @@
 ![kianaa gif!](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/4bdd9755-5ac9-4869-bccf-6fc29da9453f)
 
  i play hi3 and hsr alot!
-
+ kin list: Furina, Kiana kaslana, march 7th
  
+characters i love [theres alot of them but i will write down some of them]:
+> dan heng, aventurine for HSR
+> kiana kaslana, sirin, mei, su, kevin kaslana for HI3
+> Furina, skirk, columbina for GI!
+
+
 ![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)
 
