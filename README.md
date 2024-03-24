@@ -18,7 +18,9 @@
  
 characters i love [theres alot of them but i will write down some of them]:
 > dan heng, aventurine for HSR
+
 > kiana kaslana, sirin, mei, su, kevin kaslana for HI3
+
 > Furina, skirk, columbina for GI!
 
 
