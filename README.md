@@ -7,13 +7,15 @@
 
 *They say flowers fade And their beauty can't be weighed with flowers so fake*
 
-*It's all because the way things are made, live on lies that fabricate Antipathy world*
+*It's all because the way things are made, live on lies that fabricate*
+*Antipathy world*
 
 <sub>fight for all that is beautiful in this world✩彡</sub>
 
 ![kianaa gif!](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/4bdd9755-5ac9-4869-bccf-6fc29da9453f)
 
  i play hi3 and hsr alot!
+ 
  kin list: Furina, Kiana kaslana, march 7th
  
 characters i love [theres alot of them but i will write down some of them]:
