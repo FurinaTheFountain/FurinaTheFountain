@@ -12,9 +12,10 @@
 
 <sub>fight for all that is beautiful in this world✩彡</sub>
 
+꧁•⊹٭ ᶠᵤᵣᵢₙₐ ₖᵢₙₙₑ❢ ʸₒᵤ ₘᵢᵍₕₜ ₖₙₒʷ ₘₑ ₐₛ ᵣₒₛₑ ᵢₙ ₚₒₙʸₜₒʷₙ, ᴳᵢ, ₕₛᵣ ₒᵣ ₑᵥₑₙ ₕᵢ₃❢ ٭⊹•꧂
+
 ![kianaa gif!](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/4bdd9755-5ac9-4869-bccf-6fc29da9453f)
 
- i play hi3 and hsr alot!
  
  kin list: Furina, Kiana kaslana, march 7th
  
