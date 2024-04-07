@@ -17,7 +17,7 @@
 ![kianaa gif!](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/4bdd9755-5ac9-4869-bccf-6fc29da9453f)
 
  
- kin list: Furina, Kiana kaslana, march 7th
+ kin list: Furina, K.K
  
 characters i love [theres alot of them but i will write down some of them]:
 > dan heng, aventurine for HSR
