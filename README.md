@@ -1,31 +1,30 @@
-![tgif test](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/eea8c95b-5233-4dd6-b52a-890448915796)![tgif test](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/eea8c95b-5233-4dd6-b52a-890448915796)
+
+<div align="center">𝐒ɦ𝖾୭𝐇𝖾𝗋 
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/6d8add859b3f8ebf1f1b61eab4e7fd6f/262d378b995b0627-55/s400x600/bd20a6af4ca888f05065679a381ba537e97c3dde.pnj" alt="Sublime's custom image"/>
+</p>
+
+![wing](https://64.media.tumblr.com/365db5fc894e9d71de327667e3d038d8/ec634dc05569b9f8-28/s75x75_c1/5547cf6d9ae5e7df98f9808b673f20b8547814c9.gifv)![aa](https://64.media.tumblr.com/717ec88b3d15bfb3de214657a95d0d88/791b2ba427168bbc-a1/s75x75_c1/cb6c4f24c7907773fc0eed491756b2b60ad3da30.gifv)![wing](https://64.media.tumblr.com/2ee7e7d5c57e5601ff9bd7366e0520f6/ec634dc05569b9f8-c0/s75x75_c1/d7145b0c0b6e3052348b041d3d0653750d37e3f6.gifv)
+
+<div align="center"> 𝐓ɦ𝖾 ωⱺ𝗋ᥣᑯ 𝗂𝗌 𝗃υ𝗌𝗍 α 𝗌𝗍α𝗀𝖾
+	
+<div align="center">𝚰𝗍'𝗌 ᑲ𝖾𝗍𝗍𝖾𝗋 𝗍ⱺ ᥣαυ𝗀ɦ 𝗍ɦα𐓣 𝗍ⱺ 𝖼𝗋𝗒
+
+<div align="center">
+𝐁𝖾𝖼αυ𝗌𝖾 ᥣαυ𝗀ɦ𝗍𝖾𝗋 𝗂𝗌 ⱺ𝖿 ɦυꭑα𐓣 𐓣α𝗍υ𝗋𝖾
+
+<div align="center">𝐋αυ𝗀ɦ α𝗍 𝗂𝗍 αᥣᥣ, ᑯⱺ𐓣'𝗍 ωⱺ𝗋𝗋𝗒
+
+<div align="center">𝐋𝖾𝗍'𝗌 𝖾𐓣𝗃ⱺ𝗒 𝗍ⱺᑯα𝗒
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/58274bf2ed5d8a696bccd1e40a3f4db9/5c493d0cfed27f69-07/s400x600/93923fa9f0cbc9a15ceabd6c03e12029f8c51651.pnj" alt="Sublime's custom image"/>
+</p>
 
 
-
-⋆⋅⋆⋅☆⋅⋆ ──
-──── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ────── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆⋅⋆
-
-*They say flowers fade And their beauty can't be weighed with flowers so fake*
-
-*It's all because the way things are made, live on lies that fabricate*
-*Antipathy world*
-
-<sub>fight for all that is beautiful in this world✩彡</sub>
-
-꧁•⊹٭ ᶠᵤᵣᵢₙₐ ₖᵢₙₙₑ❢ ʸₒᵤ ₘᵢᵍₕₜ ₖₙₒʷ ₘₑ ₐₛ ᵣₒₛₑ ᵢₙ ₚₒₙʸₜₒʷₙ, ᴳᵢ, ₕₛᵣ ₒᵣ ₑᵥₑₙ ₕᵢ₃❢ ٭⊹•꧂
-
-![kianaa gif!](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/4bdd9755-5ac9-4869-bccf-6fc29da9453f)
-
- 
- kin list: Furina, K.K
- 
-characters i love [theres alot of them but i will write down some of them]:
-> dan heng, aventurine for HSR
-
-> kiana kaslana, sirin, mei, su, kevin kaslana for HI3
-
-> Furina, skirk, columbina for GI!
-
-
-![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)![gif aging](https://github.com/FurinaTheFountain/FurinaTheFountain/assets/161873372/fb331ce1-84c1-43f4-a020-e1811a558956)
+[ˡˡᵒᶜᵏᵉᵗ](https://www.tumblr.com/llocket) & [ᵃᵈᵒʳᵉⁱⁿᵉ](https://www.tumblr.com/adoreine)
+<p align="center">
+  <img src="https://64.media.tumblr.com/3bd1f9a5360bb16f69be45f84b44c394/bdbbf3489b406cb1-5d/s75x75_c1/b5f5de82b8f0f8f741367f766d8658df98443354.webp" alt="Sublime's custom image"/>
+</p>
 
