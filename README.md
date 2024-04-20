@@ -16,6 +16,8 @@
 
 𝐌ⱺ𝗌𝗍 𝗍𝗂ꭑ𝖾𝗌 𝐒-𝐀𝖿𝗄/𝐀𝖿𝗄
 
+𝗌𝗂𝗀𐓣 𝗀υ𝖾𝗌𝗍ᑲⱺⱺ𝗄!
+
 <p align="center">
   <img src="https://64.media.tumblr.com/2574ef43d1734d6eac5738fc827ab19f/d8b694ada6a9769f-08/s540x810/9945cdd7c3246e372e3fa9bd57761a474b88daf5.pnj" alt="Sublime's custom image"/>
 </p>
