@@ -12,7 +12,7 @@
 
 <p align="center">
 
-![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)[𝐃𝗂𝗌𝖼ⱺ𝗋ᑯ](https://discordid.netlify.app/?id=1048289380843925636)ʷᵒⁿᵗ  ᵃᶜᶜᵉᵖᵗ ⁱᶠ ⁱ ᵈᵒⁿᵗ ᵏⁿᵒʷ ʸᵒᵘ![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)
+![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv) [*𝐃𝚰𝐒𝐂𝐎𝐑𝐃*](https://discordid.netlify.app/?id=1048289380843925636) 𝐖ⱺ𐓣𝗍 α𝖼𝖼𝖾ρ𝗍 𝗂𝖿 𝚰 ᑯⱺ𐓣'𝗍 𝗄𐓣ⱺω 𝗒ⱺυ![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)
 
 
 [𝐋𝗂𐓣𝗄s](https://rentry.co/linkrose)
