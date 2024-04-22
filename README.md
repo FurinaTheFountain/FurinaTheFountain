@@ -10,13 +10,14 @@
 
 ![wing](https://64.media.tumblr.com/365db5fc894e9d71de327667e3d038d8/ec634dc05569b9f8-28/s75x75_c1/5547cf6d9ae5e7df98f9808b673f20b8547814c9.gifv)![aa](https://64.media.tumblr.com/717ec88b3d15bfb3de214657a95d0d88/791b2ba427168bbc-a1/s75x75_c1/cb6c4f24c7907773fc0eed491756b2b60ad3da30.gifv)![wing](https://64.media.tumblr.com/2ee7e7d5c57e5601ff9bd7366e0520f6/ec634dc05569b9f8-c0/s75x75_c1/d7145b0c0b6e3052348b041d3d0653750d37e3f6.gifv)
 
-<p align="center">𝐃𝐍𝐂 ꭑ𝗒 ρ𝗍 𝗌𝗄𝗂𐓣𝗌! 𝚰𝐍𝐒𝐏𝐎 ⱺ𝗄!
-	
-𝗂𐓣𝗍 α𐓣𝗒𝗍𝗂ꭑ𝖾 υ𐓣ᥣ𝖾𝗌𝗌 ᑯ𐓣𝗂υ𝖿/ᑯ𐓣𝗂
+<p align="center">
 
-𝐌ⱺ𝗌𝗍 𝗍𝗂ꭑ𝖾𝗌 𝐒-𝐀𝖿𝗄/𝐀𝖿𝗄
+![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)[𝐃𝗂𝗌𝖼ⱺ𝗋ᑯ](https://discordid.netlify.app/?id=1048289380843925636)ʷᵒⁿᵗ  ᵃᶜᶜᵉᵖᵗ ⁱᶠ ⁱ ᵈᵒⁿᵗ ᵏⁿᵒʷ ʸᵒᵘ![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)
 
-𝗌𝗂𝗀𐓣 𝗀υ𝖾𝗌𝗍ᑲⱺⱺ𝗄!
+
+[𝐋𝗂𐓣𝗄s](https://rentry.co/linkrose)
+
+𝗌𝗂𝗀𐓣 𝗀υ𝖾𝗌𝗍ᑲⱺⱺ𝗄s!
 
 <p align="center">
   <img src="https://64.media.tumblr.com/2574ef43d1734d6eac5738fc827ab19f/d8b694ada6a9769f-08/s540x810/9945cdd7c3246e372e3fa9bd57761a474b88daf5.pnj" alt="Sublime's custom image"/>
