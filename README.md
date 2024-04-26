@@ -1,26 +1,41 @@
+<div align="center">𝐒𝗍α𝗒 𝗋𝗂𝗀ɦ𝗍 𝗍ɦ𝖾𝗋𝖾! 𝐖ɦ𝗂ᥣ𝖾 𝚰 𝗀𝗂𝗏𝖾 𝗒ⱺυ α ρ𝗋𝖾𝗌𝖾𐓣𝗍!
+  
+![](https://64.media.tumblr.com/377d5e804c397cdcf181892fa4c502ce/cfe258a6a88f2e6c-68/s2048x3072/8a75c17bf7808886097bc13a24b62ab884dc6e3c.pnj)
 
-<div align="center">𝐒ɦ𝖾୭𝐇𝖾𝗋
+<p align="center">
+  <img src="https://64.media.tumblr.com/0b3180d60c1bce6e8d440f98c4ecbeed/eec0bdcbf40f94d6-69/s1280x1920/884eb153bd3d201e3eb9812efdd90621a0b34b63.gifv"/>
+</p>
+
+<div align="center">
+
+![](https://64.media.tumblr.com/875bd17dceedbf79822344bd42b22f50/cfe258a6a88f2e6c-31/s400x600/ec23ca1288697b2e791d2df756bc4e586e921e32.pnj)
+
+<div align="center">𝐒ɦ𝖾✿𝐇𝖾𝗋
 <div align="center">14y୭ⱺ
 
+
+![wing](https://64.media.tumblr.com/68cec2391a49d447269aa49c7c41b9e7/3c2c210dbc46ea24-39/s75x75_c1/8c2f2d877db0d700292428c79cf259a977042922.gifv)![my melody idk](https://64.media.tumblr.com/46be25e1a8a31c46c35ebc61aa4c943b/d9a333d859a5147e-51/s75x75_c1/af8fb4b0e81d48cc111f9038c38f7558af7acd9e.gifv)![wing](https://64.media.tumblr.com/b4f9e39b60be7c67d4027591f208394b/3c2c210dbc46ea24-21/s75x75_c1/e5f1efeed7221a307fbdd1a746342574f39139b6.gifv)
+
 <p align="center">
-  <img src="https://64.media.tumblr.com/f9790d9a7be21fbd1c100e190c7c460a/ca8ec97c78d4471f-46/s400x600/a702c3d6928e25c9cc5fb5e69178423ec6da91e0.pnj"/>
+
+![](https://64.media.tumblr.com/88fb920927b85f9f9c1baac15c8ce7a9/b63d219930f56f89-ad/s75x75_c1/8986feaed9718127f321e29953e2070651be2bcc.gifv) [*𝐃𝚰𝐒𝐂𝐎𝐑𝐃*](https://discordid.netlify.app/?id=1048289380843925636) 𝐖ⱺ𐓣𝗍 α𝖼𝖼𝖾ρ𝗍 𝗂𝖿 𝚰 ᑯⱺ𐓣'𝗍 𝗄𐓣ⱺω 𝗒ⱺυ![](https://64.media.tumblr.com/198024cb04ee892aa30bbb79d365d5c7/b63d219930f56f89-51/s75x75_c1/397f8679b27f37f0cf474a280b431352f3f693f6.gifv)
+
+
+
+➷[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)➷[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/marchthefontain)➷[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)➷
+
+𝗌𝗂𝗀𐓣 [𝗀υ𝖾𝗌𝗍](https://k423.123guestbook.com/#)[ᑲⱺⱺ𝗄s](https://furinakinnie.123guestbook.com/)!![](https://64.media.tumblr.com/38dafbc8fa0b77ca40f4b3abac080d2e/d9a333d859a5147e-a6/s75x75_c1/073029ca57fc47d4df1532caf9089aefc08e1a98.gifv)
+
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/f4ae8c5cf4a3213147200b60f1fdf3ee/cfe258a6a88f2e6c-a2/s400x600/aff6424aa65decba8032fa01c1970a1d44c23bf9.pnj" alt="Sublime's custom image"/>
 </p>
 
-[ᶜʰᵉʳʳʸˢʰʰ](https://www.tumblr.com/rrozeta)
+![small march](https://64.media.tumblr.com/50f64bb1e1dbb1ee574850662fb30c88/8cabafd7d57cb58f-37/s250x400/2f5d0e42afc138ab11be21c535852d30a8620986.pnj) 
 
-![wing](https://64.media.tumblr.com/365db5fc894e9d71de327667e3d038d8/ec634dc05569b9f8-28/s75x75_c1/5547cf6d9ae5e7df98f9808b673f20b8547814c9.gifv)![aa](https://64.media.tumblr.com/717ec88b3d15bfb3de214657a95d0d88/791b2ba427168bbc-a1/s75x75_c1/cb6c4f24c7907773fc0eed491756b2b60ad3da30.gifv)![wing](https://64.media.tumblr.com/2ee7e7d5c57e5601ff9bd7366e0520f6/ec634dc05569b9f8-c0/s75x75_c1/d7145b0c0b6e3052348b041d3d0653750d37e3f6.gifv)
+---
 
-<p align="center">
+ᵍʳᵃᵖʰⁱᶜˢ ᵇʸ [ᶜʰᵉʳʰᵒⁿᵒʳ](https://www.tumblr.com/cherhonor) ˢᵐᵃˡˡ ᵐᵃʳᶜʰ ᵇʸ [ʰᵃᵖᵖʸˢʳᵖʰ](https://www.tumblr.com/happysrph) ᴰⁱᵛⁱᵈᵉʳˢ ᵇʸ 
+[ᶠˡᵒʳⁱᵉᵗᵃˢ](https://www.tumblr.com/florietas) ᴾⁱˣᵉˡˢ ᵇʸ [ʷᵒⁿᵈᵉʳˡᵃⁿᵈᵖⁱˣᵉˡ](https://www.tumblr.com/wonderlandpixel) ⁿ [ᶜᵘᵗᵉᵈⁱˢᶜᵒᵛᵉʳʸ](https://www.tumblr.com/cutediscovery)
 
-![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv) [*𝐃𝚰𝐒𝐂𝐎𝐑𝐃*](https://discordid.netlify.app/?id=1048289380843925636) 𝐖ⱺ𐓣𝗍 α𝖼𝖼𝖾ρ𝗍 𝗂𝖿 𝚰 ᑯⱺ𐓣'𝗍 𝗄𐓣ⱺω 𝗒ⱺυ![](https://64.media.tumblr.com/3a4062a9e9c1d2bbb795f044813e72c9/989650c73fe07925-ec/s75x75_c1/9e5f3c2ab9ab9133a444c6447bd72b224ef1508d.gifv)
-
-
-[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/marchthefontain)[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)
-
-𝗌𝗂𝗀𐓣 𝗀υ𝖾𝗌𝗍ᑲⱺⱺ𝗄s!
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/b26ffc03b21a78d9382241ae2380db6e/21fd1f59679e52dd-05/s400x600/f0c939273d6f7a0a912692ed4f0bbb6e67539806.pnj" alt="Sublime's custom image"/>
-</p>
-
-![](https://64.media.tumblr.com/db222cb3d3697c7ea6e418bdbc936139/2f692420ece9ceb5-44/s75x75_c1/318ec7792a9d73cb8341711dfd62e1499a9b0f59.gifv)
+ᴹᵃᵈᵉ ᵇʸ [ᵐᵉ](https://github.com/FurinaTheFountain)
