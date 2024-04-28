@@ -18,6 +18,15 @@
 
 <p align="center">
 
+ᥣ𝗂𝖿𝖾'𝗌 a blooming flower, it slowly withers..
+
+𝐃𝐍𝐂 ꭑ𝗒 ρ𝗍 𝗌𝗄𝗂𐓣𝗌!! 𝚰𐓣𝗌ρⱺ➺ⱺ𝗄!
+
+𝐉υ𝗌𝗍 ᑯⱺ𐓣𝗍 ꭑα𝗄𝖾 𝗍ɦ𝖾 "𝗂𐓣𝗌ρⱺ" ᥣ𝗂𝗄𝖾 α 𝖼ⱺρ𝗒
+
+![book](https://64.media.tumblr.com/53c27214e78f6be41c73fc2a4fe35bc8/d9a333d859a5147e-a6/s75x75_c1/b8dcbfca5deb83e76fd23dac064ec75c3d2d6978.gifv)
+
+
 
 ![](https://64.media.tumblr.com/88fb920927b85f9f9c1baac15c8ce7a9/b63d219930f56f89-ad/s75x75_c1/8986feaed9718127f321e29953e2070651be2bcc.gifv)➷[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)➷[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/marchthefontain)➷[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)➷![](https://64.media.tumblr.com/198024cb04ee892aa30bbb79d365d5c7/b63d219930f56f89-51/s75x75_c1/397f8679b27f37f0cf474a280b431352f3f693f6.gifv)
 
