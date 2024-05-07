@@ -18,8 +18,6 @@
 
 <p align="center">
 
-ᥣ𝗂𝖿𝖾'𝗌 a blooming flower, it slowly withers..
-
 𝐃𝐍𝐂 ꭑ𝗒 ρ𝗍 𝗌𝗄𝗂𐓣𝗌!! 𝚰𐓣𝗌ρⱺ➺ⱺ𝗄❢
 
 𝐉υ𝗌𝗍 ᑯⱺ𐓣𝗍 ꭑα𝗄𝖾 𝗍ɦ𝖾 "𝗂𐓣𝗌ρⱺ" ᥣ𝗂𝗄𝖾 α 𝖼ⱺρ𝗒
