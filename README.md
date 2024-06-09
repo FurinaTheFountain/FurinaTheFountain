@@ -40,4 +40,4 @@
 ---
 ᵈⁱᵛⁱᵈᵉʳˢ ⁿ ᵖⁱˣᵉˡˢ ʷᵉʳᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
-ᵐ୨ʷ [ᵏᵘʲⁱ](https://github.com/Z1pTheDragon)ᵎᵎ
+ᵐ୨ʷ [ᵏᵘʲⁱ](https://github.com/Th3Kxka)ᵎᵎ
