@@ -6,7 +6,7 @@
 ![divider](https://64.media.tumblr.com/14efa6557bbfe344e0b5773ddd81d70b/4d243a42353dffa0-e8/s2048x3072/6c8522ca3c0d604bc07e23ac1b158f00d6d5f041.pnj)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/2bf8d42f40c2429ed841aaffb9fc6951/8cb32cefa89455ab-17/s2048x3072/c978c2984f8f1149d375664c5b0b64d0a2efca4e.pnj"/>
+  <img src="https://media.discordapp.net/attachments/1172825625476743250/1249734988216270858/output-onlinepngtools_1.png?ex=666861e8&is=66671068&hm=7a4a2ede2389ac7c8f17e28c8e2713baa7035d73979da5b7fb280e2bada55583&=&format=webp&quality=lossless&width=687&height=435"/>
 </p>
 
 <div align="center">
