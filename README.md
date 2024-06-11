@@ -42,4 +42,4 @@
 ---
 ᴳʳᵃᵖʰⁱᶜˢ ᵇʸ [ᶜᵒᵘʳᵗᵒᶠʲᵘˢᵗⁱᶜᵉ](https://www.tumblr.com/courtofjustice) ᵈⁱᵛⁱᵈᵉʳˢ ⁿ ᵖⁱˣᵉˡˢ ʷᵉʳᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
-ᵐ୨ʷ [ᵏᵘʲⁱ](https://github.com/Th3Kxka) ⁿ [ᶻᵒʸᵃ](hAlicefpeofficial)ᵎᵎ
+ᵐ୨ʷ [ᵏᵘʲⁱ](https://github.com/Th3Kxka) ⁿ [ᶻᵒʸᵃ](https://github.com/Alicefpeofficial)ᵎᵎ
