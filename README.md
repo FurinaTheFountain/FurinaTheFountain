@@ -26,7 +26,7 @@
 
 ![](https://64.media.tumblr.com/b6f6b55542d1f1d536f450bc5042736e/91f74bd9989039ae-8c/s75x75_c1/640ee6330595f47dd9d6a52090162df0573083b3.gifv)𝘫𝘶𝘴𝘵 𝘥𝘰𝘯𝘵 𝘮𝘢𝘬𝘦 𝘵𝘩𝘦 "𝘐𝘯𝘴𝘱𝘰" 𝘢 𝘤𝘰𝘱𝘺![](https://64.media.tumblr.com/453a73ac5f55e585d9bbbbc94b4acdba/91f74bd9989039ae-84/s75x75_c1/7b59f9f7da1c6cc5f78e76e934dbbf9f81541ca7.gifv)
 
-![arlekino](https://64.media.tumblr.com/76301e2a75fed7f298e29437b8bc401a/79c02e7422b6e32b-69/s250x400/887f001e7c8c3c9f0b4db2c6de370d47032a33f3.pnj)
+![arlekino](https://64.media.tumblr.com/76301e2a75fed7f298e29437b8bc401a/79c02e7422b6e32b-69/s100x200/7cce3f4a5de90c92c8740bbe60451ffb978b97b1.pnj)
 
 
 ![](https://64.media.tumblr.com/7cd9cb830eaff859b6bc538f02c1167c/91f74bd9989039ae-4f/s75x75_c1/17ed5731d26587e7c57aee0f7c5b270db2fde145.gifv)➷[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)➷[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/marchthefontain)➷[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)➷![](https://64.media.tumblr.com/7cd9cb830eaff859b6bc538f02c1167c/91f74bd9989039ae-4f/s75x75_c1/17ed5731d26587e7c57aee0f7c5b270db2fde145.gifv)
