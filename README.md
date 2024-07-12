@@ -5,7 +5,7 @@
 ![divider](https://64.media.tumblr.com/5b956bf379aebf03fb742e3cecfb02b6/384875cc12ff4362-bb/s2048x3072/a0ac4461da6c2e1b57615647f0bb0b61728ea19b.pnj)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/74f312d85e63b15ea9fc0eb7ce7e838f/f1bfc661aefeeb6f-28/s1280x1920/7629155c52e8f843288ece437262bbe94d9c1923.gifv"/>
+  <img src="https://64.media.tumblr.com/c3f030ea7a6d8d8211f4083e51bd0c85/f1bfc661aefeeb6f-23/s1280x1920/46fbfc85e973c0063ac2712b1c438e766aad5e1f.pnj"/>
 </p>
 
 <div align="center">
