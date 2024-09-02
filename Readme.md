@@ -39,7 +39,7 @@
 ![divider4](https://64.media.tumblr.com/582963b9fbaed066768b9aab72bc7375/11ccc40b46fe2198-29/s400x600/564eadb1e5183fcd5fb042eb8ace019a88b352ff.pnj)
 
 
-![chibi jingliu](https://github.com/user-attachments/assets/695a35bd-12c7-437b-9820-4c9a540779ab) ![chibi jingliu](https://github.com/user-attachments/assets/3ccd2522-e1d0-4b3a-b668-6d4d16b4f4b4)
+###### ୭ ˚. ᵎᵎ
 
 
 ---
