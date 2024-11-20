@@ -6,13 +6,12 @@
 </p>
 
 
+![divider](https://64.media.tumblr.com/547d2f1cbe1d221216435b27d8bfb119/3f29c5ef19381f32-2d/s640x960/0a0fc4c13fa8097c484cf7556bd044b958c0a52a.pnj)
+
 
 #### ![](https://64.media.tumblr.com/e9d5d7233e6f908e0acca81dbbe7dec4/2e5cb582a4a27d66-38/s75x75_c1/fad807991481d82c0b620edaf71dd80acd12ce84.gifv) ⭑ [𝘙𝘦𝘯𝘵𝘳𝘺](https://rentry.co/FurinaTheFontaine) ⭑  ![](https://64.media.tumblr.com/59a5699c501486d59be27d73ae337125/2e5cb582a4a27d66-cf/s75x75_c1/760e6b904d81915f5fef1e3bea7086b90efcd3e0.gifv) ⭑ [𝘙𝘦𝘵𝘳𝘰](https://sparkler.cc/@furinathefountain) [𝘚𝘱𝘳𝘪𝘯𝘨](https://retrospring.net/@FurinaTheFontain) ⭑  ![](https://64.media.tumblr.com/e9d5d7233e6f908e0acca81dbbe7dec4/2e5cb582a4a27d66-38/s75x75_c1/fad807991481d82c0b620edaf71dd80acd12ce84.gifv) ⭑ [𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://furinathefountain.atabook.org/)⭑ ![](https://64.media.tumblr.com/59a5699c501486d59be27d73ae337125/2e5cb582a4a27d66-cf/s75x75_c1/760e6b904d81915f5fef1e3bea7086b90efcd3e0.gifv)
-ㅤ
 
 
-![divider](https://64.media.tumblr.com/547d2f1cbe1d221216435b27d8bfb119/3f29c5ef19381f32-2d/s640x960/0a0fc4c13fa8097c484cf7556bd044b958c0a52a.pnj)
-ㅤ
 
 ㅤ
 
