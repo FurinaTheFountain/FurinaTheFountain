@@ -19,7 +19,7 @@
 
 
 ㅤ
-![](https://64.media.tumblr.com/8541c005b323a18833b5b0059cb82400/3f29c5ef19381f32-c9/s100x200/d94edc790543cc50622ae1d94f1f5635fd047aaa.pnj)
+![](https://64.media.tumblr.com/e3282abf882fd47be9515c3b65217fa2/9d4edc4d2ac3eb0b-72/s250x400/4c5328ad1b71a3bdc4ac51f5f8a8966f754a66d4.pnj)
 ㅤ
 
 ---
