@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![main graph](https://64.media.tumblr.com/04013a5fa9419ae98fa6eb2afd99cf39/2ae182b3f256ad11-61/s1280x1920/26e3c9a56256eea233a5f7c64e09024deae5d73e.gifv)
+![main graph](https://64.media.tumblr.com/9d4d3f6aeea7de94c6470e3f9c4c0218/76da76084a581b56-4b/s1280x1920/ba90f18b260b704914ff0c21f63bce53373f90ec.jpg)
 
 
 ![divider](https://64.media.tumblr.com/9f0f72f4f29f33a6502afda629b6a365/648f2d6326bc57fd-1e/s640x960/4ff9e2e4f48cca444c628dce617c33cb69f3ee95.gifv)
@@ -17,11 +17,11 @@
 
 
 ㅤ
-![](https://64.media.tumblr.com/47689235e981753f768f9f90f9a70d59/2ae182b3f256ad11-ee/s250x400/3c103e0a48a9e53cce8503508391420263f48a5c.gifv)
+![](https://64.media.tumblr.com/1dc48ff48370547b8a684b063f844a39/76da76084a581b56-bc/s250x400/5d9de9dab99c66522125a772015e3ab0f0416642.pnj)
 ㅤ
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵍᵒᵗᵗᵃ⁻ᵉᵈⁱᵗ⁻ᶠᵃˢᵗ](https://www.tumblr.com/gotta-edit-fast) ᵖⁱˣᵉˡˢ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵈᵒˡˡʸʷᵒⁿˢ](https://www.tumblr.com/dollywons/768617158354796544)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵛᵉˡᵃᵃᶻᵘʳᵉᵗᵃⁱˡ](https://www.tumblr.com/velaazuretail) ᵖⁱˣᵉˡˢ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵈᵒˡˡʸʷᵒⁿˢ](https://www.tumblr.com/dollywons/768617158354796544)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
