@@ -1,9 +1,7 @@
 <div align="center">
 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/04013a5fa9419ae98fa6eb2afd99cf39/2ae182b3f256ad11-61/s1280x1920/26e3c9a56256eea233a5f7c64e09024deae5d73e.gifv"/>
-</p>
+![](https://64.media.tumblr.com/04013a5fa9419ae98fa6eb2afd99cf39/2ae182b3f256ad11-61/s1280x1920/26e3c9a56256eea233a5f7c64e09024deae5d73e.gifv)
 
 
 ![divider](https://64.media.tumblr.com/9f0f72f4f29f33a6502afda629b6a365/648f2d6326bc57fd-1e/s640x960/4ff9e2e4f48cca444c628dce617c33cb69f3ee95.gifv)
