@@ -18,10 +18,10 @@
 
 ㅤ
 ![](https://64.media.tumblr.com/8868cdeef01f9e9c3256f073b2bdfad3/9e8058b164bbe933-cb/s250x400/91b28de3f3097f6a1f3621103b3bd8a5d8a902bb.gifv)
-ㅤ
+
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ⁿ ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵛᵉˡᵃᵃᶻᵘʳᵉᵗᵃⁱˡ](https://www.tumblr.com/velaazuretail) ᵖⁱˣᵉˡˢ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵇᵘⁿⁱ⁻ᶜʰᵉʳⁱ](https://www.tumblr.com/buni-cheri) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵏᵒᵈᵃˢʷʳˡᵈ](https://www.tumblr.com/kodaswrld) ᵖⁱˣᵉˡˢ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
