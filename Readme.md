@@ -17,7 +17,7 @@
 
 
 ㅤ
-![](https://64.media.tumblr.com/8868cdeef01f9e9c3256f073b2bdfad3/9e8058b164bbe933-cb/s250x400/91b28de3f3097f6a1f3621103b3bd8a5d8a902bb.gifv)
+![](https://64.media.tumblr.com/942da2870fbbc2d933f43192c1017f5f/fef77113a44e0136-d8/s400x600/6be02f1641ede0fb1ecaefa1435df1850353eff1.pnj)
 
 
 ---
