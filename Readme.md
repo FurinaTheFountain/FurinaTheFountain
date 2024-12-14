@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![main graph](https://64.media.tumblr.com/7d7d98046f95f4fa28adaaed33bf36df/fef77113a44e0136-88/s2048x3072/8dbfcad4f661b0757feeb1dfa440968c3e1f735c.pnj)
+![main graph](https://64.media.tumblr.com/131825359d36035a32f887a5576f1d2d/0a1de667a2143810-23/s1280x1920/5b49a4b8e9ce959268b9b90735760ee65adfe10e.pnj)
 
 
 ![divider](https://64.media.tumblr.com/9531edb344231e47224023edc07bd45a/407055fc4094a03f-5c/s1280x1920/0de299e74a55ff02a5c80c84762520d252204d52.pnj)
@@ -17,11 +17,11 @@
 
 
 ㅤ
-![](https://64.media.tumblr.com/942da2870fbbc2d933f43192c1017f5f/fef77113a44e0136-d8/s400x600/6be02f1641ede0fb1ecaefa1435df1850353eff1.pnj)
+![](https://64.media.tumblr.com/8020904a5a433327f59742932397a756/0a1de667a2143810-9d/s100x200/7a7a9b0bd068e4dd5f63ec4ba524333a4682aeb4.pnj)
 
 
 ---
-ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵈⁱᵛ¹ⁿᵉᵖᵉᵗᵃˡ](https://www.tumblr.com/div1nepetal) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ˢˢᵉᵘᵈᵃ](https://www.tumblr.com/sseuda) ᵖⁱˣᵉˡˢ ᵇʸ [ˢᵒᵘˡᵃᶜᵉ](https://www.tumblr.com/soulace)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᵐᵉ](https://www.tumblr.com/furinathefountain) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ˢˢᵉᵘᵈᵃ](https://www.tumblr.com/sseuda) ᵖⁱˣᵉˡˢ ᵇʸ [ˢᵒᵘˡᵃᶜᵉ](https://www.tumblr.com/soulace)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
