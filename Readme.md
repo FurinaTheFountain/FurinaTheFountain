@@ -1,10 +1,10 @@
 <div align="center">
 
 
-![main graph](https://64.media.tumblr.com/50389e380429ee1f21e8bdc5f5bdd316/955185a212ed95f2-29/s1280x1920/a91fdbb408f0d25711dc4aa5885bd383808eef23.gifv)
+![main graph](https://64.media.tumblr.com/a060bbec32e9c55eec8c00dae7e65e06/bd6b1695f9814124-34/s2048x3072/0762572cab40f1debf28cf03ed181cb262cabe09.pnj)
 
 
-![divider](https://64.media.tumblr.com/c9d30fa01724da224944f04aaa467d7c/955185a212ed95f2-8e/s640x960/5b2d22c7bd9227ea5b602b73e233670f2d119813.pnj)
+![divider](https://64.media.tumblr.com/399dc60dc69dd7c5107a43c77558e7b8/bd6b1695f9814124-67/s640x960/1566961b16770775568c07f56167eb7ca878e3ae.pnj)
 
 
 #### ![](https://64.media.tumblr.com/bc6eeae8e0b05939a4cba4e80bd33144/3c2c210dbc46ea24-22/s75x75_c1/28e777c457c196a01ac4180cb80d6c6b2811ed22.gifv) ⭑ [𝘙𝘦𝘯𝘵𝘳𝘺](https://rentry.co/FurinaTheFountain) ⭑  ![](https://64.media.tumblr.com/9d82a9f580ec38ee441e66f95d8b0604/3c2c210dbc46ea24-07/s75x75_c1/468626c325fce8cff856c88f5e9397343d216eb5.gifv) ⭑ [𝘙𝘦𝘵𝘳𝘰](https://sparkler.cc/@furinathefountain) [𝘚𝘱𝘳𝘪𝘯𝘨](https://retrospring.net/@FurinaTheFontain) ⭑  ![](https://64.media.tumblr.com/bc6eeae8e0b05939a4cba4e80bd33144/3c2c210dbc46ea24-22/s75x75_c1/28e777c457c196a01ac4180cb80d6c6b2811ed22.gifv) ⭑ [𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://furinathefountain.atabook.org/)⭑ ![](https://64.media.tumblr.com/9d82a9f580ec38ee441e66f95d8b0604/3c2c210dbc46ea24-07/s75x75_c1/468626c325fce8cff856c88f5e9397343d216eb5.gifv)
@@ -17,12 +17,12 @@
 
 
 ㅤ
-![](https://64.media.tumblr.com/d438aae6a9c84a61a7cfb72498c4d4ac/955185a212ed95f2-14/s250x400/b2882c8e8a5e1009e4baabae4bca0d9cdcb68943.gifv)
+![](https://64.media.tumblr.com/92fc491445313055fdfde0da66509a64/bd6b1695f9814124-89/s250x400/23bc253b5230a155549a1f04816723e4c659e6fb.gifv)
 
 
 ---
 
-ᵍʳᵃᵖʰⁱᶜ ⁿ ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵏⁱᵒᶜʰⁱˢᵃᵗᵒ](https://www.tumblr.com/kiochisato)  ᵖⁱˣᵉˡˢ ᵇʸ [ᵏᵃⁿᵍᵉˡᵒᵇˢᵉˢˢⁱᵒⁿ](https://www.tumblr.com/kangelobsession)
+ᵍʳᵃᵖʰⁱᶜ ⁿ ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵃˣᵉˢᵗʳˡ](https://www.tumblr.com/furinathefountain/759122631575355392?source=share)  ᵖⁱˣᵉˡˢ ᵇʸ [ᵏᵃⁿᵍᵉˡᵒᵇˢᵉˢˢⁱᵒⁿ](https://www.tumblr.com/kangelobsession)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
