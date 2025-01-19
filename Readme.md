@@ -1,28 +1,29 @@
 <div align="center">
 
 
-![main graph](https://64.media.tumblr.com/a060bbec32e9c55eec8c00dae7e65e06/bd6b1695f9814124-34/s2048x3072/0762572cab40f1debf28cf03ed181cb262cabe09.pnj)
+![main graph](https://64.media.tumblr.com/40c0862d4d852a193402ad0032598be3/fd2cf237f3660e90-0e/s1280x1920/3cb4baa3eb453aedc1cf1d48a73650c8eb71d7e2.gifv)
+
+![divider](https://64.media.tumblr.com/172deb5872ced0e59fed82a82f34ec0a/962596485191520a-5f/s2048x3072/bcf4c49eb5f87c6f2191cafc9075b30aa50db98c.pnj)
 
 
-![divider](https://64.media.tumblr.com/399dc60dc69dd7c5107a43c77558e7b8/bd6b1695f9814124-67/s640x960/1566961b16770775568c07f56167eb7ca878e3ae.pnj)
+#### ![](https://64.media.tumblr.com/06540445b2cd7256466560ec12ddcda9/d072aa7bfa55c889-dd/s75x75_c1/5821a1e9a1932521536d66946f897356d0045e28.gifv) ⭑ [𝘙𝘦𝘯𝘵𝘳𝘺](https://rentry.co/FurinaTheFountain) ⭑  ![](https://64.media.tumblr.com/618eae7425661f454ac90f5dec605eca/d072aa7bfa55c889-e1/s75x75_c1/5dc72bbbd3edaed13dd824ee2f4029238ac144bf.gifv) ⭑ [𝘙𝘦𝘵𝘳𝘰](https://sparkler.cc/@furinathefountain) [𝘚𝘱𝘳𝘪𝘯𝘨](https://retrospring.net/@FurinaTheFontain) ⭑  ![](https://64.media.tumblr.com/06540445b2cd7256466560ec12ddcda9/d072aa7bfa55c889-dd/s75x75_c1/5821a1e9a1932521536d66946f897356d0045e28.gifv) ⭑ [𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://furinathefountain.atabook.org/)⭑ ![](https://64.media.tumblr.com/618eae7425661f454ac90f5dec605eca/d072aa7bfa55c889-e1/s75x75_c1/5dc72bbbd3edaed13dd824ee2f4029238ac144bf.gifv)
 
-
-#### ![](https://64.media.tumblr.com/bc6eeae8e0b05939a4cba4e80bd33144/3c2c210dbc46ea24-22/s75x75_c1/28e777c457c196a01ac4180cb80d6c6b2811ed22.gifv) ⭑ [𝘙𝘦𝘯𝘵𝘳𝘺](https://rentry.co/FurinaTheFountain) ⭑  ![](https://64.media.tumblr.com/9d82a9f580ec38ee441e66f95d8b0604/3c2c210dbc46ea24-07/s75x75_c1/468626c325fce8cff856c88f5e9397343d216eb5.gifv) ⭑ [𝘙𝘦𝘵𝘳𝘰](https://sparkler.cc/@furinathefountain) [𝘚𝘱𝘳𝘪𝘯𝘨](https://retrospring.net/@FurinaTheFontain) ⭑  ![](https://64.media.tumblr.com/bc6eeae8e0b05939a4cba4e80bd33144/3c2c210dbc46ea24-22/s75x75_c1/28e777c457c196a01ac4180cb80d6c6b2811ed22.gifv) ⭑ [𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://furinathefountain.atabook.org/)⭑ ![](https://64.media.tumblr.com/9d82a9f580ec38ee441e66f95d8b0604/3c2c210dbc46ea24-07/s75x75_c1/468626c325fce8cff856c88f5e9397343d216eb5.gifv)
-
-
-
-ㅤ
-
-###### ![](https://64.media.tumblr.com/7869ec8ad78161b9ec6d766aeb6a1bc8/3c2c210dbc46ea24-36/s75x75_c1/e72b91dfa08b2edc8667bf87dcd0f5ce0c254cf6.gifv)➷[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)➷[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/Rose1kins)➷[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)➷![](https://64.media.tumblr.com/a3cea4f3b5c26782dd5a73f25159ca36/3c2c210dbc46ea24-3e/s75x75_c1/a8965e70d8e3f3cb194669f250ccd98702f8ed1f.gifv)
 
 
 ㅤ
-![](https://64.media.tumblr.com/92fc491445313055fdfde0da66509a64/bd6b1695f9814124-89/s250x400/23bc253b5230a155549a1f04816723e4c659e6fb.gifv)
+
+###### ![](https://64.media.tumblr.com/fb3d8f463dccd57d194b9947a014d6c7/d072aa7bfa55c889-3c/s75x75_c1/5947d5859092f0b248994344e9f6958695fbfc4b.gifv)➷[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)➷[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/Rose1kins)➷[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)➷![](https://64.media.tumblr.com/f256f49b8b6f3ee6342e1ee7a3cc9889/d072aa7bfa55c889-5a/s75x75_c1/3bd1a2b3f2d8f620df17003721172d8a1e486ed1.gifv)
+
+ㅤ
+
+
+ㅤ
+[![](https://64.media.tumblr.com/a317a413b994e3c4a01aff8bf072caae/fd2cf237f3660e90-53/s100x200/79445e3eb9178815958b4f88bbd540fb19a67a82.gifv)](https://github.com/Th3Kxka) ㅤ
 
 
 ---
 
-ᵍʳᵃᵖʰⁱᶜ ⁿ ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵃˣᵉˢᵗʳˡ](https://www.tumblr.com/furinathefountain/759122631575355392?source=share)  ᵖⁱˣᵉˡˢ ᵇʸ [ᵏᵃⁿᵍᵉˡᵒᵇˢᵉˢˢⁱᵒⁿ](https://www.tumblr.com/kangelobsession)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ˢᵏᵉˡᵉᵗᵒⁿᵉⁿᵗʰᵘˢⁱᵃˢˢ](https://www.tumblr.com/skeletonenthusiass) ᴰⁱᵛⁱᵈᵉʳ ᵇʸ [ᵃⁿⁱᵗᵃˡᵉⁿⁱᵃ](https://www.tumblr.com/anitalenia) ᵖⁱˣᵉˡˢ ᵇʸ [ⁿᵉᵘʳᵒᶜᵘᵗᵉ](https://www.tumblr.com/neurocute)
 
 ᵉᵛᵉʳʸᵗʰⁱⁿᵍ ᵉˡˢᵉ ᶠᵒᵘⁿᵈ ⁱⁿ  [ᵗᵘᵐᵇˡʳ](https://www.tumblr.com)
 
