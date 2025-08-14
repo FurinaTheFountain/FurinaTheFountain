@@ -1,5 +1,8 @@
 <div align="center">
 
+Im gonna renew this whole page into phainon since i uh..idk i got obssesed with him
+also yea i might play pony town often, maybe less than often
+
 ![](https://64.media.tumblr.com/dc35b5616d255b1b85b7045aff6ed749/185e017d4818800f-ae/s2048x3072/bc82c0403c92c7767286cdeb47460e99884450ad.pnj)
 
 ---
