@@ -1,7 +1,7 @@
 <div align="center">
 
 ![Main graph](https://64.media.tumblr.com/0e36414e51aabc71222a6fe11028a59f/081686e8d961337c-70/s2048x3072/3c79550342bf436619c203e2634fc362d51e2e6c.pnj)
-
+ㅤㅤ [.co/khaos666](https://rentry.co/khaos666)
 卡厄斯兰那 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
 
 ┈┈ .✦ 𓏴ㅤ[ᴼ1 𓈒](https://rentry.co/FurinaTheFountain)ㅤ[ᴼ2 𓈒](https://khaos666.carrd.co/)ㅤ[ᴼ3 𓈒](https://furinathefountain.atabook.org/)ㅤ ˳ 𓎟𓎟ㅤ L͟i͟nks  .    ˚̣̣̣☆︶  ![](https://64.media.tumblr.com/7631269534214a041029ecbca648b216/081686e8d961337c-ac/s75x75_c1/8b12a48121e7f6fda02ac6a8780dc3423f42f927.gifv)
