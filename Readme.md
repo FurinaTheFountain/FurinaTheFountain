@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/d05a070016c8d046c570f1fd9384b779/081686e8d961337c-41/s250x400/5ca9c573976a34ac19df23b94ea6105841b6a62c.pnj) ![](https://64.media.tumblr.com/1da0a3ad734ad8f5e8f43e01c95e3905/081686e8d961337c-53/s250x400/1b02ebcc9638f117290503e77d28b1c26077637e.pnj)
 
-[.co/furinathetountain](https://rentry.co/FurinaTheFountain)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
+[.co/furinathefountain](https://rentry.co/FurinaTheFountain)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
 卡厄斯兰那 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
 
