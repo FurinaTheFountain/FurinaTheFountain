@@ -1,6 +1,7 @@
 <div align="center">
 
-![Main graph](https://64.media.tumblr.com/1da0a3ad734ad8f5e8f43e01c95e3905/081686e8d961337c-53/s2048x3072/5deda0910feab389663d8eaa6010a83a7aa7e7c4.pnj)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ[.co/furinathetountain](https://rentry.co/FurinaTheFountain)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
+![Main graph](https://64.media.tumblr.com/1da0a3ad734ad8f5e8f43e01c95e3905/081686e8d961337c-53/s2048x3072/5deda0910feab389663d8eaa6010a83a7aa7e7c4.pnj)
+[.co/furinathetountain](https://rentry.co/FurinaTheFountain)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
 卡厄斯兰那 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
 
