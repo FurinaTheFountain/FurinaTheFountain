@@ -1,7 +1,7 @@
 <div align="center">
 
 ![Main graph](https://64.media.tumblr.com/0e36414e51aabc71222a6fe11028a59f/081686e8d961337c-70/s2048x3072/3c79550342bf436619c203e2634fc362d51e2e6c.pnj)
-[.co/khaos666](https://rentry.co/khaos666)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ 
+[.co/khaos666](https://rentry.co/khaos666)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ 
 
 卡厄斯兰那 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
 
