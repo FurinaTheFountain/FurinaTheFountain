@@ -26,4 +26,9 @@
 
 graphic credits .ㅤㅤ[evixah](https://www.tumblr.com/evixah/796606449011851264?source=share) ʸᵘᵐᵉ ˢᵗᵃᵐᵖˢㅤㅤ.ㅤㅤme ⁱ ᵐᵃᵈᵉ ᵗʰᵉ ˢᵗᵃᵐᵖˢ
 
+---
+
+<img width="379" height="126" alt="image" src="https://github.com/user-attachments/assets/2492bb38-461c-4de8-bf52-ded577612b5f" />
+
+
 ⠀
