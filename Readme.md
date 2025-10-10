@@ -12,7 +12,7 @@
 
 [.co/furinathefountain](https://rentry.co/FurinaTheFountain)ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ
 
-卡厄斯兰那 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
+`卡厄斯兰那` 𓃊ㅤ“I grant you a Dawn where all stars burn to ash.”
 
 ┈┈ .✦ 𓏴ㅤ[ᴼ1 𓈒](https://furinathefountain.straw.page/)ㅤ[ᴼ2 𓈒](https://pronouns.cc/@FurinaTheFountain)ㅤ[ᴼ3 𓈒](https://furinathefountain.atabook.org/)ㅤ ˳ 𓎟𓎟ㅤ L͟i͟nks  .    ˚̣̣̣☆︶  ![](https://64.media.tumblr.com/73383040cc6d792bb5c388bfed583a9b/081686e8d961337c-67/s75x75_c1/f4cfd24b51b59a8fa1864d1f52857c16b3411ffe.webp)
 
