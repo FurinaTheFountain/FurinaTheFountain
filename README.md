@@ -4,7 +4,7 @@
 ![small furina](https://64.media.tumblr.com/91ef26214570429766835022002dffc3/a35c0eb049c802bd-b7/s400x600/b2206ec111e7e49a742817ed4270d1672551f53b.pnj)
 
 
-![](https://komarev.com/ghpvc/?username=FurinaTheFountain&color=b1ccf2&label=Act+𓈒&abbreviated=true)ㅤㅤ![](https://64.media.tumblr.com/37b9f2264f2942e90fb7b725ace56243/d13d12092749e6f7-ff/s75x75_c1/54000462389a2ee1cd89d80086bb5c62bf38bac2.gifv)ㅤㅤ<sup> **@furinathefountainㅤ‣ㅤ@dawnsdeathㅤ‣ㅤ@fIamereaver** </sup> ㅤㅤ<a href="https://github.com/FIamereaver"><img src="https://64.media.tumblr.com/58767fa41589695271ddc796e5ee1b25/e8737868934dec52-d6/s250x400/9a9cba0bd2365bbbf6f9e73ab1104f0ef3668a0f.pnj" width="100" height="auto" title="main"></a>
+![](https://komarev.com/ghpvc/?username=FurinaTheFountain&color=b1ccf2&label=Act+𓈒&abbreviated=true)ㅤㅤ![](https://64.media.tumblr.com/37b9f2264f2942e90fb7b725ace56243/d13d12092749e6f7-ff/s75x75_c1/54000462389a2ee1cd89d80086bb5c62bf38bac2.gifv)ㅤㅤ<sup> **@furinathefountainㅤ‣ㅤ@dawnsdeathㅤ‣ㅤ@fIamereaver** </sup> ㅤ <a href="https://github.com/FIamereaver"><img src="https://64.media.tumblr.com/58767fa41589695271ddc796e5ee1b25/e8737868934dec52-d6/s250x400/9a9cba0bd2365bbbf6f9e73ab1104f0ef3668a0f.pnj" width="100" height="auto" title="main"></a>
 
 ㅤㅤㅤ<sup>hi hello, this github was made for you to navigate to my main. quite a while</sup>ㅤ![](https://64.media.tumblr.com/c7a365db27633ad081f97fa09b5b6703/d13d12092749e6f7-c7/s75x75_c1/f6e953665b27864ba248de5f34c68e1c28c306fc.gifv) ㅤ $\color{#9face3}{\textsf{フリーナ・ドゥ・フォンテーヌ}}$ <br> 
 <sup>and because of that, some are unable to find me. so i made this github w/ my old user</sup>ㅤㅤㅤㅤ────୨ৎ────ㅤ
